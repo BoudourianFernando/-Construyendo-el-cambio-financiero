@@ -1,1 +1,2 @@
 # -Construyendo-el-cambio-financiero
+La educación financiera en cryptomonedas es clave para democratizar el acceso a un sistema económico más inclusivo y transparente. Aprender sobre blockchain y su impacto permite a más personas tomar decisiones informadas, reducir riesgos y aprovechar oportunidades. Al fomentar este conocimiento, creamos un futuro financiero donde la innovación y la equidad van de la mano.
